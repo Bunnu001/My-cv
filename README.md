@@ -1,1 +1,0 @@
-Gandhi ji page
